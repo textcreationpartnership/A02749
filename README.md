@@ -36,23 +36,23 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
+Actus Primus.Our heauenly blessynge, be with you euerychoneOmnes simul.All prayse and glorye, to you
+    _ Actus Primus.
 
-1. Actus Primus.
+    _ ¶ Incipit Actus secundus.
 
-1. ¶ Incipit Actus secundus.
+    _ Incipit Actus tertius.
 
-1. Incipit Actus tertius.
+    _ Incipit Actus quartus.
 
-1. Incipit Actus quartus.
+    _ Incipit Actus quintus.
 
-1. Incipit Actus quintus.
+    _ The ten comaundementes bryefelye.
 
-1. The ten comaundementes bryefelye.
-
-1. ¶ A songe vpon Benedictus: Compyled by Iohn Bale.
+    _ ¶ A songe vpon Benedictus: Compyled by Iohn Bale.
 
 #####Back#####
-A nevve comedy or enterlude, concernyng thre lawes of nature, Moises, and Christe, corrupted by the 
+IMPRYNTED AT London / in S. brydes Churchyarde, ouer agaynste the North Doore of the Churche, by Tho
 **Types of content**
 
   * There are 1810 **verse** lines!
